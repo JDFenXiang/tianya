@@ -15,4 +15,4 @@
 ![Image text](http://img.shenzhendeyang.com/wp-content/uploads/2023/05/20230512071246991.png)
 ![Image text](http://img.shenzhendeyang.com/wp-content/uploads/2023/05/20230512071253919.png)
 天涯神贴合集–天涯合集210篇.rar
-http://img.shenzhendeyang.com/wp-content/uploads/2023/05/20230512071225164.png
+![Image text](http://img.shenzhendeyang.com/wp-content/uploads/2023/05/20230512071225164.png)
